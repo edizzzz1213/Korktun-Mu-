@@ -1,0 +1,2 @@
+# Korktun-Mu-
+açmayı dene :)
